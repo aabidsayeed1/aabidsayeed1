@@ -10,5 +10,5 @@
 - ⚡ Fun fact: i spend 14 hours on coding 
 -->
 - 📫 How to reach me: ...
-[Instagram - @aabidsayeed1](https://www.instagram.com/aabidsayeed1/)
+[Instagram - @aabidsayeed1](https://www.instagram.com/aabidsayeed1/),
 [Instagram -@codewithkashmir](https://www.instagram.com/codewithkashmir/)
